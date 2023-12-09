@@ -1,3 +1,8 @@
+
+https://bazzhood.blogspot.com/2023/11/amp-blogger-templates.html
+https://bazzhood.blogspot.com/2020/01/Responsive-Blogger-Templates.html
+https://bazzhood.blogspot.com/2020/03/mobile-friendly-blogger-templates.html
+https://bazzhood.blogspot.com/2021/06/login-or-sign-in-blogger-blogspot.html
 https://bazzhood.blogspot.com # post
 Best Custom Blogger Contact Form Widgets
 <style type="text/css">
